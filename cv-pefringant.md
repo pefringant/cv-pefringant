@@ -1,7 +1,7 @@
 Pierre-Emmanuel Fringant
 ========================
 
-35 ans, marié, un enfant
+35 ans, marié, un enfant  
 [@pefringant](https://twitter.com/pefringant)
 
 Je suis
